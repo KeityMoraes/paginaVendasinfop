@@ -1,2 +1,2 @@
 # paginaVendasinfop
-Código da Abundância: 21 Dias Para Reprogramar Sua Mente Para o Dinheiro
+Pagina para criadores de info Produto
